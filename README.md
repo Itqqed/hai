@@ -1,1 +1,1 @@
-ok so uhm hi I'm Jaiden or Isaac but better known as Jai! I recently have been inactive but I'm trying to be more active now ^_^ I'm socially awkward so mostly I'll be silent or whisper in chat on pony town :,) this is still a wip... ok? ok
+ok so uhm hi I'm Jaiden or Isaac but better known as Jai! I recently have been inactive but I'm trying to be more active now ^_^ I'm socially awkward so mostly I'll be silent or whisper in chat on pony town :,) Dont be afraid to interact with me! C+h is ok with me c: this is still a wip... ok? ok
